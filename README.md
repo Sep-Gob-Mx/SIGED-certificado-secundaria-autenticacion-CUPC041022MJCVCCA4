@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CUPC041022MJCVCCA4
+CUPC041022MJCVCCA4
